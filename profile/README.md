@@ -1,4 +1,4 @@
-![photo-1613408181923-f058a1b0e00c-3](https://github.com/user-attachments/assets/0c4da46b-a088-4ad1-8806-57df6b004fc7)
+![image](https://github.com/user-attachments/assets/11643d22-0a5d-448b-b31c-0710930f6073)
 
 ## 행사명
 ### **2025 연합 프로젝트 - 성장톤**
